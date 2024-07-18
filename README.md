@@ -5,7 +5,7 @@
 🌱 I’m currently learning React.js
 
 
- 📫 You can reach 
+ 📫 You can reach me 
  
  Linkedin : https://www.linkedin.com/in/seyed-mahdi-hashemi-818259308
  
