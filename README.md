@@ -7,6 +7,6 @@
 
  📫 You can reach me 
  
- Linkedin : https://www.linkedin.com/in/seyed-mahdi-hashemi-818259308
+ Linkedin : https://www.linkedin.com/in/s-m-hashemi
  
  Email : seyedmahdihashemi104@gmail.com
