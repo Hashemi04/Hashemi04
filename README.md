@@ -1,4 +1,3 @@
-# 💫 About Me:
 ### Hi there 👋, I'm Seyed Mahdi Hashemi
 **Frontend Engineer | Next.js & Nuxt.js**
 
